@@ -9,6 +9,8 @@ We have a solid community and people always find themselves back playing at Phoe
 
 So, if you are looking for a place to hang out, meet new people and explore content that you have never experienced before then what are you waiting for?
 
+PS: If you are reading this then you are probably having a nosey looking at how we are doing....we are doing great :D
+
 <!---
 PhoenixRP-Github/PhoenixRP-Github is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
